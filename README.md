@@ -1,0 +1,1 @@
+# parada17_turma_i
